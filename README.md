@@ -1,6 +1,6 @@
 vpn推荐官网地址
 
-最新地址：<a href="https://freefly-cloud.com">freefly-cloud.com</a>
+最新自由飞云vpn地址：<a href="https://www.freefly-cloud.com/#/register?code=YumpHvs1">freefly-cloud.com</a>
 
 
 
@@ -35,6 +35,7 @@ vpn机场推荐
 月付	-	￥10
 
 年付	-	￥110
+
 
 
 
